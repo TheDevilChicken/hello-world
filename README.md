@@ -1,2 +1,2 @@
 # hello-world
-fest, farver og andet godt
+I am a tyrannical space overlord known to the Scientology community as Lord Xenu. 
